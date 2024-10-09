@@ -1,1 +1,2 @@
-rubensé foda
+meu nome é Rubens Gabriel Divino tenho 16 anos, gosto muito de comer, treinar, jogar volei, zuar com a rapaziada,... Moro com meu pai e minha irmã mais nova que tem apenas 5 anos, minh amãe e meu pai são separados por isso moro apenas com meu pai e minha irmã, tenho uma madrasta que não sou muito fã dela,não tenho uma cor favorita mais vermelho e verde são as cores que mais me chaman a atenção.
+Estudo no ifpr (intituto federal do parana) campus pinhais, estou no curso tecnico de informatica, é até por isso que estou escrevendo isso aqui por que se eu não estivesse nesse curso eu não saberia disso.
